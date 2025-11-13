@@ -43,5 +43,3 @@
 ⚡ **Fun Fact:** I love turning raw data into meaningful insights!
 
 ---
-
-⚡ **Fun Fact:** I love turning raw data into meaningful insights!
